@@ -1,6 +1,6 @@
 # 青云梯机场官网最新地址+优惠码
 
-青云梯机场官网最新地址：[https:qytcloud.cc](https://ivt01.qytaff.cc/register?aff=dTvJ05CM)
+青云梯机场官网最新地址：[https:haibing822.qytvipaff.cc](https://haibing822.qytvipaff.cc/register?aff=dTvJ05CM)
 
 ## 青云梯机场介绍
 
